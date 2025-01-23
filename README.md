@@ -1,0 +1,1 @@
+# King-Legacy-Script-No-Key-Pastebin
